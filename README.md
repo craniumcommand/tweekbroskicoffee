@@ -1,10 +1,15 @@
 ` welcome to tweek bros coffee! how may i help you? `
 
-names: juno, fred, raz, arch, skullkid, yuno, yunobo, clyde, and goro!
-nonbinary + trans + aroace + enbian. he/they please! do not call me a girl/woman.
-current interests : psychonauts, the legend of zelda, south park, and chalkzone!
-DNI IF YOU ARE PROSHIPPER, COMSHIPPER, LOLICON/SHOTACON, OR ANYTHING ALONG THOSE LINES! ALSO DNI IF UR A ZOOPHILE!
-if you've clicked on this from my ponytown, here are my restrictions : please respect my personal space, DO NOT COPY MY SKINS UNLESS I ALLOW YOU TO! inspiration is ok tho! don't kiss me unless i allow you to. and pls don't overwhelm me. ty!
-skullkid, yunobo, fred bonaparte, and edgar teglee kin! doubles OK!
+* names i go by :: yuno, alfie, tari, and rooney.
+
+* my interests :: the legend of zelda, pikmin, cookie run ( both ovenbreak and kingdom ), chalkzone, psychonauts and scott pilgrim vs the world ( yes i have read the books. )
+
+* kins :: yunobo ( tloz: botw ), olive cookie ( crk ), and skullkid ( tloz: oot/mm )
+
+* dni list :: basic dni, proshippers, toxic ppl in the fandoms i like, toxic ppl in general, ppl i have had bad experiences with, racists, and homophobic/transphobic ppl.
+
+* thin ice list :: dave and bambi fans ( UNLESS I SPECIFICALLY KNOW YOU, YOU MAY INT :3 ), fnf fans ( same for dnb fans ), over 18, and nsfw/gore artists\
+
+* interact list :: over 13, tally hall fans, people who like/are in the fandoms im in, people in the lgbtq community, and just good ppl overall ^^
 
 ` thanks for coming to tweek bros coffee! see you again soon! `
