@@ -8,6 +8,8 @@
 
 * kins :: yunobo ( tloz: botw ), olive cookie ( crk ), and skullkid ( tloz: oot/mm )
 
+* i have ADD, pls keep that in mind : )
+
  ` DNI/THIN ICE LIST `
  
 * basic dni, proshippers, toxic ppl in the fandoms i like, toxic ppl in general, ppl i have had bad experiences with, racists, under 12, and homophobic/transphobic ppl.
