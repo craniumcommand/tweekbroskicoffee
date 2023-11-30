@@ -20,6 +20,6 @@
 
 ` IF WE EVER INTERACT IN PONYTOWN, PLEASE KEEP IN MIND THESE THINGS. `
 
- * i am very introverted and i will barely interact unless i feel comfortable with you. please do not give me or my friends 'feedback' on our avatars. unless we are in a rating line. we do not need criticism on our skins. i have cover discomfort, so please dont cover me :)
+ * i am very introverted and i will barely interact unless i feel comfortable with you. please do not give me or my friends 'feedback' on our avatars; unless we are in a rating line, we do not need criticism on our skins. i have cover discomfort, so please dont cover me :)
 
 ` thanks for coming to tweek bros coffee! see you again soon! `
