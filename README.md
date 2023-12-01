@@ -6,7 +6,7 @@
 
 * my interests :: the legend of zelda, pikmin, cookie run ( both ovenbreak and kingdom ), chalkzone, psychonauts and scott pilgrim vs the world ( yes i have read the books. )
 
-* kins :: yunobo ( tloz: botw ), olive cookie ( crk ), and skullkid ( tloz: oot/mm )
+* kins :: yunobo ( tloz: botw ), olive cookie ( crk ), razputin aquato ( psychonauts ) and skullkid ( tloz: oot/mm )
 
 * i have ADD, pls keep that in mind : )
 
