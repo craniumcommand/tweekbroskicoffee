@@ -12,9 +12,9 @@
 
  ` DNI/THIN ICE LIST `
  
-* basic dni, proshippers, toxic ppl in the fandoms i like, toxic ppl in general, ppl i have had bad experiences with, racists, under 12, and homophobic/transphobic ppl.
+* DNI :: basic dni, proshippers, toxic ppl in the fandoms i like, toxic ppl in general, ppl i have had bad experiences with, racists, under 12, and homophobic/transphobic ppl.
 
-* dave and bambi and fnf fans ( UNLESS I SPECIFICALLY KNOW YOU, YOU MAY INT :3 ), over 18 ( again, unless i specifically know or have known you, you may int. ), and nsfw/gore artists.
+* THIN ICE :: invader zim fans ( some experiences i've had with them have been a bit iffy :C . dni please unless ik u well ), dave and bambi and fnf fans ( UNLESS I SPECIFICALLY KNOW YOU, YOU MAY INT :3 ), over 18 ( again, unless i specifically know or have known you, you may int. ), and nsfw/gore artists.
 
 ` INTERACTION LIST `
 
