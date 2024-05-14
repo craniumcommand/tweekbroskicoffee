@@ -1,4 +1,4 @@
-![image](https://github.com/craniumcommand/tweekbroskicoffee/assets/137795848/8fbf5324-1f01-4f42-aeb0-0f12f496d063)
+![image](https://github.com/craniumcommand/tweekbroskicoffee/assets/137795848/87278488-afc0-4f7a-a2e1-e3ca7501a009)
 
 `buzzy/alf/yuno`
 
@@ -6,7 +6,7 @@
 
 `hyperfixes are psychonauts, animatronics, sci-fi, chalkzone, and whatever happened to robot jones`
 
-`minor`
+`minor, 18+ iwec please`
 
 `woh ur transgener.... tas so cool.... and straightbian :3`
 
