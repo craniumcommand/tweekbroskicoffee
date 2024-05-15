@@ -2,6 +2,8 @@
 
 `buzzy/alf/yuno`
 
+`TAKEN BY THE MOST AMAZING GIRL EVER <33333 ILYOSGDVFM SWEETHEART`
+
 `cranium command and legend of zelda enthusiast`
 
 `hyperfixes are psychonauts, animatronics, sci-fi, chalkzone, and whatever happened to robot jones`
