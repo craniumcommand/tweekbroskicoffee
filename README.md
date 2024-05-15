@@ -2,7 +2,7 @@
 
 `buzzy/alf/yuno`
 
-`TAKEN BY THE MOST AMAZING GIRL EVER <33333 ILYOSGDVFM SWEETHEART`
+`TAKEN BY THE MOST AMAZING GIRL EVER <:33333 ILYOSGDVFM SWEETHEART`
 
 `cranium command and legend of zelda enthusiast`
 
