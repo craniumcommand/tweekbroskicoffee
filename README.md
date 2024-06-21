@@ -10,7 +10,7 @@
 
 `minor, 18+ iwec please`
 
-`woh ur transgener.... tas so cool.... and straightbian :3`
+`woh ur transgener.... tas so cool.... and pansexual :3`
 
 `just a heads up i LOVE yapping about my interests and i may yap without warning so if that annoys you let me know please!! ^_^`
 
