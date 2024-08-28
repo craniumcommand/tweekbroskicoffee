@@ -1,2 +1,2 @@
-![imagehttps://files.catbox.moe/ygb5tn.png]
+![image https://files.catbox.moe/ygb5tn.png]
  wip
