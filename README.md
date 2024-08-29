@@ -1,6 +1,6 @@
 ![image](https://github.com/user-attachments/assets/9cbb6c69-e6a4-4448-ab9b-10ed1418f47b)
 
-![image](https://github.com/user-attachments/assets/aacc1a46-c552-428d-a8b0-7052aa0f3cd8)
+alf / buzzy / xr
 
 he / they transgender and pansexual
 
@@ -12,7 +12,8 @@ at first, i tend to be very shy and not social, so please be patient. ALSO, plea
 
 do not flirt with ME or my WIFE. it makes us both very uncomfortable and i will bash at you for it.
 
-![image](https://github.com/user-attachments/assets/da394043-18c2-4747-b960-648d08092c75)
+
+!! BEFORE YOU INTERACT, PLEASE READ THESE. !!
 
 https://www.patreon.com/craniumcommand/about , https://immunidoom.atabook.org
 
